@@ -1,4 +1,13 @@
 # Jabali-studio
+download link studio
+
+https://drive.google.com/file/d/1FZKmlLdpYRSTg6oB_-rFGzgxJjkIjAmm/view?usp=drivesdk
+
+
+
+
+assets
+
 https://drive.google.com/file/d/1CrLN-__WKRS5zbuZyGxCLIKd1irnTws1/view?usp=drivesdk
 
 
